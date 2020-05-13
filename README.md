@@ -1,1 +1,0 @@
-# type.primeent.in
